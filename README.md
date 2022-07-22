@@ -29,8 +29,8 @@ Thanks to my work experience and studies, I have lived in New York, California, 
 <br> 
 
 ### 💚 Outside of coding I enjoy:  
-- Travels 🌎  
-I have been to Belgium, Canada, Egypt, France, Greece, Italy, Ivory Coast, Monaco, Switzerland, Thailand, Tunisia, UAE, UK, USA  
+- [Travels 🌎](https://kim-t-l.github.io/)  
+I have been to Belgium, Canada, Egypt, France, Greece, Italy, Ivory Coast, Monaco, Switzerland, Thailand, Tunisia, UAE, UK, USA 
 - Binging series 🎥
 - Being a foodie addict 🍝  
 <br> 
